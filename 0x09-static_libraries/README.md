@@ -1,0 +1,1 @@
+all abou empity sattic
